@@ -1,6 +1,3 @@
+baseurl: /riverFlowsInYou
 title: River flows in You
-
-include:
-  - "assets/images"
-
 theme: jekyll-theme-merlot
