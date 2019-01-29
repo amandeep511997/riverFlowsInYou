@@ -8,7 +8,7 @@ As
 
 ### Chhand:10(Ekachhri), Verse:199 Jaap Sahib
 
-![guru-gobind-singh-ji-5.jpg](/docs/img/guru-gobind-singh-ji-5.jpg)
+![guru-gobind-singh-ji.jpg](https://github.com/amandeep511997/amandeep511997.github.io/blob/master/img/artwork/guru-gobind-singh-ji.jpg)
 
 
 > Chattra chakkra varti chattra chakkra bhugte.
@@ -29,5 +29,5 @@ Erasing virulent time, Embodiment of Compassion,
 The Ever-so-near Companion, The Grace that vanishes never.
 
 
-*Listen to this beautiful hymn by **Snatam Kaur***
+*Listen to this beautiful hymn sung by **Snatam Kaur***
 <iframe width="530" height="295" src="https://www.youtube.com/embed/Z2gHpYOx22U" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
