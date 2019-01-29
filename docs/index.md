@@ -8,7 +8,7 @@ As
 
 ### Chhand:10(Ekachhri), Verse:199 Jaap Sahib
 
-![guru-gobind-singh-ji.png](https://github.com/amandeep511997/riverFlowsInYou/blob/master/docs/img/guru-gobind-singh-ji.png)
+![guru-gobind-singh-ji.png](https://github.com/amandeep511997/riverFlowsInYou/blob/master/docs/img/guru-gobind-singh-ji-1.jpg)
 
 
 > Chattra chakkra varti chattra chakkra bhugte.
