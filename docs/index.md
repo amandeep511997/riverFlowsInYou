@@ -30,6 +30,8 @@ The Ever-so-near Companion, The Grace that vanishes never.
 
 *Listen to this beautiful hymn sung by **Snatam Kaur***
 
+source: Book - Basking in the divine presence, A study of Jaap Sahib
+
 ---
 
 ### Dhanaasree Mehlaa:4
