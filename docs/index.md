@@ -58,4 +58,20 @@ Wherever God is remembered in meditation, misfortune disappears. By great good f
 
 Nanak has been blessed with this understanding; by meditating on God, we cross the turbulent world ocean.
 
+[source](https://www.sikhdharma.org/jap-man-sat-nam/)
+
+---
+
+### Mian Muhammad Baksh Saheb’s “Saif-ul-Malook”
+
+> Mali da kaam pani dena, bhar bhar mashkaan pawaye,
+
+The gardener’s job is to water the plants with skin-bags full of water,
+
+> Malik da kam phal phol lana laway ya na laway.
+
+It is up to the lord to allow fruits and flowers to grow.
+
+[source](https://qausain.wordpress.com/2009/10/05/mian-muhammad-baksh-05/)
+
 ---
