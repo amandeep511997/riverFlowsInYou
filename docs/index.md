@@ -81,3 +81,60 @@ It is up to the lord to allow fruits and flowers to grow.
 *[source](https://qausain.wordpress.com/2009/10/05/mian-muhammad-baksh-05/)*
 
 ---
+
+### Sorath Mehlaa Panjavaa
+
+> Aaithai oothai rakhavaalaa
+
+Here and hereafter, the Divine is our Savior 
+
+> Prabh satigur deen dyaalaa 
+
+God, the True Guru, is merciful to the meek
+
+> Daas apanay aap raakhay
+
+The Divine protects all
+
+> Ghatt ghatt shabad subhaakhay 
+
+In each and every heart, the beautiful word of the Shabad resounds
+
+> Gur kay charan oopar bal jaaee
+
+I am a sacrifice to the Guru’s feet
+
+> Dinas rayn saas saas samaalee pooran sabhanee thaaee
+
+Day and night, with each and every breath, I remember my Guru who is totally pervading and permeating all places
+
+> Aap sahaaee hoaa
+
+The Lord has become our protector
+
+> Sachay daa sachaa dhoaa 
+
+The Truest of the True has taken care of us
+
+> Tayree bhagat vaddiaaee
+
+Glorious and great is devotional worship to you
+
+> Paaee Naanak prabh saranaaee
+
+Nanak has found God’s Sanctuary.
+
+---
+
+
+
+
+
+
+
+
+
+
+
+
+
