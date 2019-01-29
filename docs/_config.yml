@@ -1,6 +1,6 @@
 title: River flows in You
 
 include:
-  - "assets"
+  - "assets/images"
 
 theme: jekyll-theme-merlot
