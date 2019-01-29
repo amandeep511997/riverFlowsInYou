@@ -30,7 +30,7 @@ The Ever-so-near Companion, The Grace that vanishes never.
 
 *Listen to this beautiful hymn sung by **Snatam Kaur***
 
-source: Book - Basking in the divine presence, A study of Jaap Sahib
+*source: Book - Basking in the divine presence, A study of Jaap Sahib*
 
 ---
 
@@ -64,7 +64,7 @@ Nanak has been blessed with this understanding; by meditating on God, we cross t
 
 *Listen to this beautiful hymn sung by **Snatam Kaur***
 
-[source](https://www.sikhdharma.org/jap-man-sat-nam/)
+*[source](https://www.sikhdharma.org/jap-man-sat-nam/)*
 
 ---
 
@@ -78,6 +78,6 @@ The gardener’s job is to water the plants with skin-bags full of water,
 
 It is up to the lord to allow fruits and flowers to grow.
 
-[source](https://qausain.wordpress.com/2009/10/05/mian-muhammad-baksh-05/)
+*[source](https://qausain.wordpress.com/2009/10/05/mian-muhammad-baksh-05/)*
 
 ---
