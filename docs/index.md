@@ -18,8 +18,8 @@ Self-luminous and auspicious, Affine to one and all,
 
 Erasing virulent time, Embodiment of Compassion,
 
-> Sada ang sange abhangan bibhute.|199|
+> Sada ang sange abhangan bibhute.
 
-The Ever-so-near Companion, The Grace that vanishes never.|199|
+The Ever-so-near Companion, The Grace that vanishes never.
 
-![This hymn by snatam kaur](https://www.youtube.com/watch?v=Z2gHpYOx22U)
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Z2gHpYOx22U" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
