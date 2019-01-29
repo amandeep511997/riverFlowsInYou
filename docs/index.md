@@ -66,7 +66,7 @@ Nanak has been blessed with this understanding; by meditating on God, we cross t
 
 ---
 
-### Mian Muhammad Baksh Saheb’s “Saif-ul-Malook”
+### Poetry from Mian Muhammad Baksh Saheb’s “Saif-ul-Malook”
 
 > Mali da kaam pani dena, bhar bhar mashkaan pawaye,
 
