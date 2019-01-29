@@ -8,6 +8,9 @@ As
 
 ### Chhand:10(Ekachhri), Verse:199 Jaap Sahib
 
+![guru-gobind-singh-ji](/docs/img/guru-gobind-singh-ji.jpg)
+
+
 > Chattra chakkra varti chattra chakkra bhugte.
 
 The Lord of foursome quarters, Gladsome in every state,
@@ -22,7 +25,8 @@ Erasing virulent time, Embodiment of Compassion,
 
 > Sada ang sange abhangan bibhute.
 
+
 The Ever-so-near Companion, The Grace that vanishes never.
 
-Listen to this beautiful hymn by Snatam Kaur
+*Listen to this beautiful hymn by **Snatam Kaur***
 <iframe width="530" height="295" src="https://www.youtube.com/embed/Z2gHpYOx22U" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
