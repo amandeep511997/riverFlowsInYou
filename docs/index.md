@@ -4,7 +4,9 @@ These are some of the lines which are good to ponder upon. They all are along wi
 As 
 > "The purpose is not just to utter words, but to live by them"
 
-## Chhand:10(Ekachhri), Verse:199 Jaap Sahib
+---
+
+### Chhand:10(Ekachhri), Verse:199 Jaap Sahib
 
 > Chattra chakkra varti chattra chakkra bhugte.
 
