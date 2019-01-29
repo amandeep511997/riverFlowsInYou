@@ -1,2 +1,6 @@
 title: River flows in You
+
+include:
+  - "assets"
+
 theme: jekyll-theme-merlot
