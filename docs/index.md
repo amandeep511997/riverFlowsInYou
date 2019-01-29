@@ -58,6 +58,10 @@ Wherever God is remembered in meditation, misfortune disappears. By great good f
 
 Nanak has been blessed with this understanding; by meditating on God, we cross the turbulent world ocean.
 
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BLpWqulUgtk" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+*Listen to this beautiful hymn sung by **Snatam Kaur***
+
 [source](https://www.sikhdharma.org/jap-man-sat-nam/)
 
 ---
