@@ -1,8 +1,5 @@
 ## Welcome!
-This is my collection of some hymns, verses or quotations which I find to be blissful! 
-
-These are some of the lines which are good to ponder upon. They all are along with their meanings.
-As 
+This is my collection of some hymns, verses, poetry or quotations which I find to be blissful! 
 
 > "The purpose is not just to utter words, but to live by them"
 
