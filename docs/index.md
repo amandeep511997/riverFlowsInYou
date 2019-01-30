@@ -26,6 +26,8 @@ Erasing virulent time, Embodiment of Compassion,
 
 The Ever-so-near Companion, The Grace that vanishes never.
 
+*This hymn is written by Guru Gobind Singh Ji*
+
 <iframe width="530" height="295" src="https://www.youtube.com/embed/Z2gHpYOx22U" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 *Listen to this beautiful hymn sung by **Snatam Kaur***
@@ -167,6 +169,8 @@ I speak the truth, listen everyone: Only the one who is absorbed in True Love sh
 *This hymn is written by Guru Nanak Dev Ji*
 
 <iframe width="530" height="295" src="https://www.youtube.com/embed/jMtQGXESijI" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+*Listen to this beautiful hymn sung by **Snatam Kaur***
 
 *[source](http://www.sikhiwiki.org/index.php/Jin_prem_kio_tin_hee_prabh_paayo)*
 
