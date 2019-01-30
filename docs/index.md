@@ -30,7 +30,7 @@ Ever prevails the Wonderful Lord!
 
 > Ray man eh bidh jog kamaa-o
 
-Oh mind! practice renunciation in this way:
+O mind! practice renunciation in this way:
 
 > Singee saach akapat kanthalaa
 
