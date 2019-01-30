@@ -138,6 +138,8 @@ Glorious and great is devotional worship to you
 
 Nanak has found God’s Sanctuary.
 
+*This hymn is written by Guru Arjan Dev Ji*
+
 <iframe width="530" height="295" src="https://www.youtube.com/embed/L5ueZD5GXpI" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 *Listen to this beautiful hymn sung by **Snatam Kaur***
@@ -162,13 +164,17 @@ He spends his life in sinful tasks and sits and ideals away his life in meaningl
 
 I speak the truth, listen everyone: Only the one who is absorbed in True Love shall attain the Lord.
 
+*This hymn is written by Guru Nanak Dev Ji*
+
 <iframe width="530" height="295" src="https://www.youtube.com/embed/jMtQGXESijI" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-*(source)[http://www.sikhiwiki.org/index.php/Jin_prem_kio_tin_hee_prabh_paayo]*
+*[source](http://www.sikhiwiki.org/index.php/Jin_prem_kio_tin_hee_prabh_paayo)*
 
 ---
  
 ### Benti Chaupai: Dohraa
+
+![guru-gobind-singh-ji](/assets/images/guru-gobind-singh-ji-1.jpg)
 
 > Sagal duaar kau chhaad kai, gahe’o tuhaaro duaar. 
 
@@ -178,7 +184,9 @@ O Lord ! I have forsaken all other doors and chosen your door.
 
 Baa(n)he gahe kee laaj as Gobind daas tuhaar.
 
-*(source)[http://www.sikhiwiki.org/index.php/Chaupai_sahib:_Translation_and_Transliteration]*
+*This hymn is written by Guru Gobind Singh Ji*
+
+*[source](http://www.sikhiwiki.org/index.php/Chaupai_sahib:_Translation_and_Transliteration)*
 
 ---
 
