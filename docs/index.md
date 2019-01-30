@@ -38,11 +38,11 @@ The Ever-so-near Companion, The Grace that vanishes never.
 
 ### Ik Oankar : The Beginning
 
-> *Ik Oankar Sat(i)gurprasiid(i).*
+> *Ik Oankar Sat(i)gurprasad(i).*
 
 The One: Oankar, the Primal Being, who dispels darkness through His Grace!
 
-> *Sri Wiihegurii ji ki Fateh.*
+> *Sri Waheguru ji ki Fateh.*
 
 Ever prevails the Wonderful Lord!
 
