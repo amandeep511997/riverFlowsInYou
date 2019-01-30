@@ -96,6 +96,8 @@ and death shall never approach you.
 
 *[source](http://www.mahboundlotus.com/raymanshabd.html)*
 
+*[image source](http://www.sikhiwiki.org/index.php/File:Guru_Gobind_Singh.jpg)*
+
 
 ---
 
