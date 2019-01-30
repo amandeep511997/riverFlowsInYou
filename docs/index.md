@@ -8,6 +8,97 @@ As
 
 ---
 
+### Ik Oankar : The Beginning
+
+> *Ik Oankar Sat(i)gurprasad(i).*
+
+The One: Oankar, the Primal Being, who dispels darkness through His Grace!
+
+> *Sri Waheguru ji ki Fateh.*
+
+Ever prevails the Wonderful Lord!
+
+*source: Book - Basking in the divine presence, A study of Jaap Sahib*
+
+
+---
+
+
+### Rag Ramkali(sung at dawn), by Patshahi:10
+
+![guru-gobind-singh-ji](/assets/images/guru-gobind-singh-ji-6.jpg)
+
+> Ray man eh bidh jog kamaa-o
+
+Oh my mind, practice Yoga in this way:
+
+> Singee saach akapat kanthalaa
+
+Let Truth be your horn, sincerity your necklace,
+
+> Dhi-aan Bibhoot charaa-o 
+
+and meditation the ashes you apply on your body.
+
+> Taatee geho aatam bas kar kee 
+
+Catch your burning soul (self) and stop the flames.
+
+> Bhicchhaa naam adhaarang
+
+Let the soul (self) be the alms bowl in which you collect the sweet Naam and this will be the only support you will ever need.
+
+> Baajay param taar tat har ko 
+
+The Universe plays its divine music. The sound of reality is shrill, but this is where God is.
+
+> Upajai raag rasaarang 
+
+When you listen to the reality from this place of awareness the sweet essence of Raag arises.
+
+> Ughatai taan tarang rang 
+
+Waves of melodies, emotions, and passions arise and flow through you.
+
+> Gi-aan geet bandhaanang 
+
+Bind yourself with the song of God.
+
+> Chak chak rehay dayv daanav mun 
+
+The Universe spins like a potter’s wheel and from it fly demons and angels.
+
+> Chhak chhak bayom bivaanang 
+
+The sage listens to this and instead of getting caught in either one, the sage drinks the nectar of the heavens and is carried to the heavens in a divine chariot.
+
+> Aatam upadays bhays sanjam ko 
+
+Instruct and clothe yourself with self control. Meditate unto infinity
+
+> Jaap so ajapaa jaapai 
+
+until you are meditating without meditating.
+
+> Sadaa rehai kanchan see kaayaa 
+
+In this way, your body shall remain forever golden,
+
+> Kaal na kabahoo bayaapai 
+
+and death shall never approach you.
+
+*This hymn is written by Guru Gobind Singh Ji*
+
+<iframe width="530" height="295" src="https://www.youtube.com/embed/I78T2wmmqzk" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+*Listen to this beautiful hymn sung by **Snatam Kaur***
+
+*[source](http://www.mahboundlotus.com/raymanshabd.html)*
+
+
+---
+
 ### Chhand:10(Ekachhri), Verse:199 Jaap Sahib
 
 ![guru-gobind-singh-ji](/assets/images/guru-gobind-singh-ji.jpg)
@@ -33,20 +124,6 @@ The Ever-so-near Companion, The Grace that vanishes never.
 <iframe width="530" height="295" src="https://www.youtube.com/embed/Z2gHpYOx22U" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 *Listen to this beautiful hymn sung by **Snatam Kaur***
-
-*source: Book - Basking in the divine presence, A study of Jaap Sahib*
-
----
-
-### Ik Oankar : The Beginning
-
-> *Ik Oankar Sat(i)gurprasad(i).*
-
-The One: Oankar, the Primal Being, who dispels darkness through His Grace!
-
-> *Sri Waheguru ji ki Fateh.*
-
-Ever prevails the Wonderful Lord!
 
 *source: Book - Basking in the divine presence, A study of Jaap Sahib*
 
