@@ -18,19 +18,19 @@ The One: Oankar, the Primal Being, who dispels darkness through His Grace!
 
 Ever prevails the Wonderful Lord!
 
-*source: Book - Basking in the divine presence, A study of Jaap Sahib*
+*translation source: Book - Basking in the divine presence, A study of Jaap Sahib*
 
 
 ---
 
 
-### Rag Ramkali(sung at dawn), by Patshahi:10
+### Raag Ramkali(sung at dawn), Dasam Granth, Patshahi:10
 
 ![guru-gobind-singh-ji](/assets/images/guru-gobind-singh-ji-6.jpg)
 
 > Ray man eh bidh jog kamaa-o
 
-Oh my mind, practice Yoga in this way:
+Oh mind! practice renunciation in this way:
 
 > Singee saach akapat kanthalaa
 
@@ -94,7 +94,7 @@ and death shall never approach you.
 
 *Listen to this beautiful hymn sung by **Snatam Kaur***
 
-*[source](http://www.mahboundlotus.com/raymanshabd.html)*
+*[translation source](http://www.mahboundlotus.com/raymanshabd.html)*
 
 *[image source](http://www.sikhiwiki.org/index.php/File:Guru_Gobind_Singh.jpg)*
 
@@ -127,7 +127,7 @@ The Ever-so-near Companion, The Grace that vanishes never.
 
 *Listen to this beautiful hymn sung by **Snatam Kaur***
 
-*source: Book - Basking in the divine presence, A study of Jaap Sahib*
+*translation source: Book - Basking in the divine presence, A study of Jaap Sahib*
 
 ---
 
@@ -161,7 +161,7 @@ Nanak has been blessed with this understanding; by meditating on God, we cross t
 
 *Listen to this beautiful hymn sung by **Snatam Kaur***
 
-*[source](https://www.sikhdharma.org/jap-man-sat-nam/)*
+*[translation source](https://www.sikhdharma.org/jap-man-sat-nam/)*
 
 ---
 
@@ -253,7 +253,7 @@ I speak the truth, listen everyone: Only the one who is absorbed in True Love sh
 
 *Listen to this beautiful hymn sung by **Snatam Kaur***
 
-*[source](http://www.sikhiwiki.org/index.php/Jin_prem_kio_tin_hee_prabh_paayo)*
+*[translation source](http://www.sikhiwiki.org/index.php/Jin_prem_kio_tin_hee_prabh_paayo)*
 
 ---
  
@@ -271,14 +271,52 @@ O Govind, you have taken my arm; cared and protect your servant's honour.
 
 *This hymn is written by Guru Gobind Singh Ji*
 
-*[source](http://www.sikhiwiki.org/index.php/Chaupai_sahib:_Translation_and_Transliteration)*
+*[translation source](http://www.sikhiwiki.org/index.php/Chaupai_sahib:_Translation_and_Transliteration)*
 
 ---
 
+### Raag Jaithsree, Ang: 703
+
+> Chha(n)th 
+
+Chhant:
+
+> sun yaar hamaarae sajan eik karo baena(n)theeaa 
+
+Listen, O my intimate friend - I have just one prayer to make.
+
+> this mohan laal piaarae ho firo khoja(n)theeaa 
+
+I have been wandering around, searching for that enticing, sweet Beloved.
+
+> this dhas piaarae sir dhharee outhaarae eik bhoree dharasan dheejai 
+
+Whoever leads me to my Beloved - I would cut off my head and offer it to him, even if I were granted the Blessed Vision of His Darshan for just an instant.
+
+> nain hamaarae pria ra(n)g ra(n)gaarae eik thil bhee naa dhheereejai 
+
+My eyes are drenched with the Love of my Beloved; without Him, I do not have even a moment's peace.
+
+> prabh sio man leenaa jio jal meenaa chaathrik jivai thisa(n)theeaa 
+
+My mind is attached to the Lord, like the fish to the water, and the rainbird, thirsty for the raindrops.
+
+> jan naanak gur pooraa paaeiaa sagalee thikhaa bujha(n)theeaa
+
+Servant Nanak has found the Perfect Guru; his thirst is totally quenched. 
 
 
+*Raag Jaitsiri – Jaitsiri conveys the heartfelt emotion of not being able to live without someone. Its mood is preoccupied with feelings of dependence and an overwhelming sense of reaching out to be with that person.*
 
 
+*This hymn is written by Guru Arjan Dev Ji*
 
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/169022693&color=%23acc1c1&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
+
+*Listen to this beautiful hymn sung by **Veer Manpreet Singh***
+
+*[translation source](http://www.sikhiwiki.org/index.php/Jin_prem_kio_tin_hee_prabh_paayo)*
+
+---
 
 
