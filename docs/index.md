@@ -8,7 +8,7 @@ As
 
 ### Chhand:10(Ekachhri), Verse:199 Jaap Sahib
 
-![guru-gobind-singh-ji](https://github.com/amandeep511997/amandeep511997.github.io/blob/master/img/artwork/guru-gobind-singh-ji.jpg)
+![guru-gobind-singh-ji](/assets/images/guru-gobind-singh-ji.jpg)
 
 > Chattra chakkra varti chattra chakkra bhugte.
 
@@ -29,6 +29,20 @@ The Ever-so-near Companion, The Grace that vanishes never.
 <iframe width="530" height="295" src="https://www.youtube.com/embed/Z2gHpYOx22U" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 *Listen to this beautiful hymn sung by **Snatam Kaur***
+
+*source: Book - Basking in the divine presence, A study of Jaap Sahib*
+
+---
+
+### Ik Oankar : The Beginning
+
+> *Ik Oankar Sat(i)gurprasiid(i).*
+
+The One: Oankar, the Primal Being, who dispels darkness through His Grace!
+
+> *Sri Wiihegurii ji ki Fateh.*
+
+Ever prevails the Wonderful Lord!
 
 *source: Book - Basking in the divine presence, A study of Jaap Sahib*
 
@@ -124,12 +138,49 @@ Glorious and great is devotional worship to you
 
 Nanak has found God’s Sanctuary.
 
+<iframe width="530" height="295" src="https://www.youtube.com/embed/L5ueZD5GXpI" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+*Listen to this beautiful hymn sung by **Snatam Kaur***
+
 ---
 
+### Jin praem keeo tin hee prabh paaeyo
 
+> kehaa bhayo jo dhou loochan moundh kai baht raheeo bak dheeian laageeo
 
+Of what use is it if one sits and meditates like a crane with ones eyes closed. 
 
+> nhaath firio leeae saat samudhran lok gayo perlok gvaaeeo
 
+he wanders taking holy baths at the seven sacred rivers; he loses both this world and the next. 
+
+> baas keeou beekhian so baht kay aasay he aasay s bais bithaaeiou
+
+He spends his life in sinful tasks and sits and ideals away his life in meaningless pursuits. 
+
+> saach keho suun laeho sabhay, jin praem keeo tin hee prabh paaeyo
+
+I speak the truth, listen everyone: Only the one who is absorbed in True Love shall attain the Lord.
+
+<iframe width="530" height="295" src="https://www.youtube.com/embed/jMtQGXESijI" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+*(source)[http://www.sikhiwiki.org/index.php/Jin_prem_kio_tin_hee_prabh_paayo]*
+
+---
+ 
+### Benti Chaupai: Dohraa
+
+> Sagal duaar kau chhaad kai, gahe’o tuhaaro duaar. 
+
+O Lord ! I have forsaken all other doors and chosen your door. 
+
+> O Govind, you have taken my arm; cared and protect your servant's honour.
+
+Baa(n)he gahe kee laaj as Gobind daas tuhaar.
+
+*(source)[http://www.sikhiwiki.org/index.php/Chaupai_sahib:_Translation_and_Transliteration]*
+
+---
 
 
 
