@@ -184,9 +184,9 @@ I speak the truth, listen everyone: Only the one who is absorbed in True Love sh
 
 O Lord ! I have forsaken all other doors and chosen your door. 
 
-> O Govind, you have taken my arm; cared and protect your servant's honour.
+> Baa(n)he gahe kee laaj as Gobind daas tuhaar.
 
-Baa(n)he gahe kee laaj as Gobind daas tuhaar.
+O Govind, you have taken my arm; cared and protect your servant's honour.
 
 *This hymn is written by Guru Gobind Singh Ji*
 
