@@ -88,6 +88,10 @@ In this way, your body shall remain forever golden,
 
 and death shall never approach you.
 
+
+*Raag Ramkali – The emotions in Ramkali are like those of a wise teacher disciplining their student. The student is aware of the pain of learning, but is still conscious of the fact that ultimately it is for the best. In this way Ramkali conveys the change from all that we are familiar with, to something we are certain will be better.[(source)](https://en.wikipedia.org/wiki/Ragas_in_the_Guru_Granth_Sahib)*
+
+
 *This hymn is written by Guru Gobind Singh Ji*
 
 <iframe width="530" height="295" src="https://www.youtube.com/embed/I78T2wmmqzk" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
@@ -306,7 +310,7 @@ My mind is attached to the Lord, like the fish to the water, and the rainbird, t
 Servant Nanak has found the Perfect Guru; his thirst is totally quenched. 
 
 
-*Raag Jaitsiri – Jaitsiri conveys the heartfelt emotion of not being able to live without someone. Its mood is preoccupied with feelings of dependence and an overwhelming sense of reaching out to be with that person.*
+*Raag Jaitsiri – Jaitsiri conveys the heartfelt emotion of not being able to live without someone. Its mood is preoccupied with feelings of dependence and an overwhelming sense of reaching out to be with that person.[(source)](https://en.wikipedia.org/wiki/Ragas_in_the_Guru_Granth_Sahib)*
 
 
 *This hymn is written by Guru Arjan Dev Ji*
