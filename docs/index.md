@@ -319,7 +319,7 @@ Servant Nanak has found the Perfect Guru; his thirst is totally quenched.
 *[translation source](http://www.sikhiwiki.org/index.php/Jin_prem_kio_tin_hee_prabh_paayo)*
 
 ---
-## Raag Raamklee on Panna 962
+### Raag Raamklee on Panna 962
 
 > Ŧithai ṯū samrath jithai ko▫e nāhi. 
 
