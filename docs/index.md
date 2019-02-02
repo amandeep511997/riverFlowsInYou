@@ -319,5 +319,48 @@ Servant Nanak has found the Perfect Guru; his thirst is totally quenched.
 *[translation source](http://www.sikhiwiki.org/index.php/Jin_prem_kio_tin_hee_prabh_paayo)*
 
 ---
+## Raag Raamklee on Panna 962
 
+> Ŧithai ṯū samrath jithai ko▫e nāhi. 
 
+Where You are, Almighty Lord, there is no one else. 
+
+> Othai ṯerī rakẖ agnī uḏar māhi. 
+
+There, in the fire of the mother's womb, You protected us. 
+
+> Suṇ kai jam ke ḏūṯ nā▫e ṯerai cẖẖad jāhi. 
+
+Hearing Your Name, the Messenger of Death runs away. 
+
+> Bẖa▫ojal bikẖam asgāhu gur sabḏī pār pāhi. 
+
+The terrifying, treacherous, impassible world-ocean is crossed over, through the Word of the Guru's Shabad. 
+
+> Jin ka▫o lagī pi▫ās amriṯ se▫e kẖāhi. 
+
+Those who feel thirst for You, take in Your Ambrosial Nectar. 
+
+> Kal mėh eho punn guṇ govinḏ gāhi. 
+
+This is the only act of goodness in this Dark Age of Kali Yuga, to sing the Glorious Praises of the Lord of the Universe. 
+
+> Sabẖsai no kirpāl samĥāle sāhi sāhi. 
+
+He is Merciful to all; He sustains us with each and every breath. 
+
+> Birthā ko▫e na jā▫e jė āvai ṯuḏẖ āhi. ||9|| 
+
+Those who come to You with love and faith are never turned away empty-handed. ||9|| 
+
+*This hymn is written by Guru Arjan Dev Ji*
+
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/169022693&color=%23acc1c1&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
+
+*Listen to this beautiful hymn sung by **Snatam Kaur***
+
+<iframe width="530" height="295" src="https://www.youtube.com/embed/TnBEfNzrGMM" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+*[translation source](http://www.srigranth.org/servlet/gurbani.gurbani?Action=Page&g=1&h=1&r=1&t=1&p=0&k=0&Param=962)*
+
+---
