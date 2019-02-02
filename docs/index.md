@@ -349,17 +349,15 @@ This is the only act of goodness in this Dark Age of Kali Yuga, to sing the Glor
 
 He is Merciful to all; He sustains us with each and every breath. 
 
-> Birthā ko▫e na jā▫e jė āvai ṯuḏẖ āhi. ||9|| 
+> Birthā ko▫e na jā▫e jė āvai ṯuḏẖ āhi.
 
-Those who come to You with love and faith are never turned away empty-handed. ||9|| 
+Those who come to You with love and faith are never turned away empty-handed.
 
 *This hymn is written by Guru Arjan Dev Ji*
 
-<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/169022693&color=%23acc1c1&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
+<iframe width="530" height="295" src="https://www.youtube.com/embed/TnBEfNzrGMM" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 *Listen to this beautiful hymn sung by **Snatam Kaur***
-
-<iframe width="530" height="295" src="https://www.youtube.com/embed/TnBEfNzrGMM" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 *[translation source](http://www.srigranth.org/servlet/gurbani.gurbani?Action=Page&g=1&h=1&r=1&t=1&p=0&k=0&Param=962)*
 
