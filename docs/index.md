@@ -362,3 +362,46 @@ Those who come to You with love and faith are never turned away empty-handed.
 *[translation source](http://www.srigranth.org/servlet/gurbani.gurbani?Action=Page&g=1&h=1&r=1&t=1&p=0&k=0&Param=962)*
 
 ---
+### Japji Sahib Pauri 33	
+
+![guru-nanak-dev-ji](/assets/images/guru-nanak-dev-ji.jpg)
+
+> aakhan jor chupai nah jor.
+
+There is no power in speaking; there is no power in silence.
+
+> jor na mangan dayn na jor.
+
+Power is not gained through begging; there is no power in giving.
+
+> jor na jeevan maran nah jor.
+
+Power is not gained through living; there is no power in death.
+
+> jor na raaj maal man sor.
+
+Power is not gained by ruling over others with one's wealth and occult mental powers.
+
+> jor na surtee gi-aan veechaar.
+
+Power is not gained through understanding, spiritual wisdom, and meditation.
+
+> jor na jugtee chhutai sansaar.
+
+Power is not gained by finding a way to escape from the world.
+
+> jis hath jor kar vaykhai so-ay.
+
+It is He who watches over all who has the Power.
+
+> naanak utam neech na ko-ay.
+
+O Nanak, no one is high nor low.
+
+*This hymn is written by Guru Nanak Dev Ji*
+
+<iframe width="530" height="295" src="https://www.youtube.com/embed/e3kZYPBgfEE" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+*Listen to this beautiful hymn sung by **Snatam Kaur***
+
+---
