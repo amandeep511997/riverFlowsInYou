@@ -405,3 +405,52 @@ O Nanak, no one is high nor low.
 *Listen to this beautiful hymn sung by **Snatam Kaur***
 
 ---
+### Raag Aasaa, Mehl Fifth, Ang 386
+
+> jis neech ka-u ko-ee na jaanai
+
+That wretched being, whom no one knows
+
+> naam japat ouh(u) chahu kunṯ maanai
+
+Chanting the Naam, the Name of God, he is honored in the four directions
+
+> darashan maago dayh(i) pi-aaray
+
+Oh Beloved, please give me the blessing of Thy Presence
+
+> tumaree sayvaa ka-un ka-un na taaray
+
+Serving You, who, who has not been delivered across the challenges of the world? 
+
+> jaa kai nikaṯ na aavai ko-ee
+
+That person, whom no one comes near,
+
+> sagal srisaṯ u-aa kay charan mal dho-ee
+
+The whole world comes to wash the dirt of his feet
+
+> jo praanee kaahoo na aavat kaam
+
+That mortal being who relies on breath, who no one loves or desires,
+
+> sant prasaad taa ko japee-ai naam
+
+By the Grace of the Saints, he meditates on the Naam
+
+> saadhasang man sovat jaagay
+
+In the Saadh Sangat, the Company of the Holy, the sleeping soul awakens
+
+> tab prabh naanak meeṯhay laagay
+
+Then, O Naanak, there is an attachment to the sweetness of God
+
+*This hymn is written by Guru Arjan Dev Ji*
+
+<iframe width="530" height="295" src="https://www.youtube.com/embed/8DmNJI5grWs" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+*Listen to this beautiful hymn sung by **Snatam Kaur***
+
+---
