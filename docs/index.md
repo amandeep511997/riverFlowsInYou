@@ -451,6 +451,6 @@ Then, O Naanak, there is an attachment to the sweetness of God
 
 <iframe width="530" height="295" src="https://www.youtube.com/embed/KSUOQkTT_p0" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-*Listen to this beautiful hymn sung by incredibly **Snatam Kaur***
+*Listen to this beautiful hymn sung incredibly by [**Snatam Kaur**](https://www.snatamkaur.com/)*
 
 ---
