@@ -454,3 +454,118 @@ Then, O Naanak, there is an attachment to the sweetness of God
 *Listen to this beautiful hymn sung incredibly by [**Snatam Kaur**](https://www.snatamkaur.com/)*
 
 ---
+### Japji Sahib Pauri 26	
+
+> amul guṉ amul vaapaar.
+
+Priceless are God’s Virtues, Priceless are God’s Dealings.
+
+> amul vaapaaree-ay amul bhanḏaar.
+
+Priceless are God’s Dealers, Priceless are God’s Treasures.
+
+> amul aavah(i)  amul lai jaah(i).
+
+Priceless are those who come to God, Priceless are those who buy from God.
+
+> amul bhaa-i amulaa samaah(i).
+
+Priceless is Love for God, Priceless is absorption into God.
+
+> amul dharam amul deebaaṉ.
+
+Priceless is the Divine Law of Dharma, Priceless is the Divine Court of Justice.
+
+> amul tul amul paravaaṉ.
+
+Priceless are the scales, priceless are the weights.
+
+> amul bakhasees amul neesaaṉ.
+
+Priceless are God’s Blessings, Priceless is God’s Banner and Insignia.
+
+> amul karam amul phuramaaṉ.
+
+Priceless is God’s Mercy, Priceless is God’s Royal Command.
+
+> amulo amul aakhi-aa na jaa-i.
+
+Priceless, O Priceless beyond expression!
+
+> aakh aakh rahay liv laa-i.
+
+Speak of God continually, and remain absorbed in God’s Love.
+
+> aakhah(i) vayd paaṯh puraaṉ.
+
+The Vedas and the Puraanas speak.
+
+> aakhah(i) paṟay karah(i) vakhi-aaṉ.
+
+The scholars speak and lecture.
+
+> aakhah(i) baramay aakhah(i) ind.
+
+Brahma speaks, Indra speaks.
+
+> aakhah(i) gopee tai govind.
+
+The Gopis and Krishna speak.
+
+> aakhah(i) eesar aakhah(i) sidh.
+
+Shiva speaks, the Siddhas speak.
+
+> aakheh kaytay keetay budh.
+
+The many created Buddhas speak.
+
+> aakhah(i) daanav aakhah(i) dayv.
+
+The demons speak, the demi-gods speak.
+
+> aakhah(i) sur nar mun jan sayv.
+
+The spiritual warriors, the heavenly beings, the silent sages, the humble and serviceful speak.
+
+> kaytay aakhah(i) aakhaṉ paah(i).
+
+Many speak and try to describe God.
+
+> kaytay kah(i) kah(i) uṯh uṯh jaah(i).
+
+Many have spoken of God over and over again, and have then arisen and departed.
+
+> aytay keetay hor karayh(i).
+
+If God were to create as many again as there already are,
+
+> taa aakh na sakah(i) kay-ee kay-i.
+
+even then, they could not describe God.
+
+> jayvaḏ bhaavai tayvaḏ ho-i.
+
+God is as Great as God wishes to be.
+
+> naanak jaaṉai saachaa so-i.
+
+O Naanak, the True Lord knows.
+
+> jay ko aakhai boluvigaaṟ.
+
+If anyone presumes to describe God,
+
+> taa likee-ai sir gaavaaraa gaavaar.
+
+he shall be known as the greatest fool of fools!
+
+*This hymn is written by Guru Nanak Dev Ji*
+
+<iframe width="530" height="295" src="https://www.youtube.com/embed/GDmfQf0Zwl4" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+*Listen to this beautiful hymn sung by **Snatam Kaur***
+
+*[translation source](https://blog.spiritvoyage.com/feel-the-priceless-love-of-the-divine-with-amul/)*
+
+---
