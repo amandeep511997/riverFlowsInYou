@@ -569,3 +569,46 @@ he shall be known as the greatest fool of fools!
 *[translation source](https://blog.spiritvoyage.com/feel-the-priceless-love-of-the-divine-with-amul/)*
 
 ---
+### Dhanasari, Fifth Mehl, Ang 677
+
+> jah jah paykha-o tah hajoor door katahu na jaa-ee.
+
+Wherever I look, there I see Him present; He is never far away.
+
+> rav rahi-aa sarbatar mai man sadaa Dhi-aa-ee. 
+
+He is all-pervading, everywhere; O my mind, meditate on Him forever.
+
+> eet oot nahee beechhurhai so sangee ganee-ai.
+
+He alone is called your companion, who will not be separated from you, here or hereafter.
+
+> binas jaa-ay jo nimakh meh so alap sukh bhanee-ai. rahaa-o.
+
+That pleasure, which passes away in an instant, is trivial.
+
+> paratipaalai api-aa-o day-ay kachh oon na ho-ee.
+
+He cherishes us, and gives us sustenance; He does not lack anything.
+
+> saas saas sammaaltaa mayraa parabh so-ee.
+
+With each and every breath, my God takes care of His creatures.
+
+> achhal achhayd apaar parabh oochaa jaa kaa roop.
+
+God is undeceiveable, impenetrable and infinite; His form is lofty and exalted.
+
+> jap jap karahi anand jan achraj aanoop.
+
+Chanting and meditating on the embodiment of wonder and beauty, His humble servants are in bliss. 
+
+> saa mat dayh da-i-aal parabh jit tumeh araaDhaa.
+
+Bless me with such understanding, O Merciful Lord God, that I might remember You.
+
+*Raag Dhanasari (ਧਨਾਸਰੀ) – Dhanasari is a sense of being completely carefree. This sensation arises from a feeling of contentment and 'richness' from the things we have in our lives and gives the listener a positive and optimistic attitude towards the future.[source](https://en.wikipedia.org/wiki/Ragas_in_the_Guru_Granth_Sahib)*
+
+*[translation source](http://srigurugranth.org/0677.html)*
+
+---
