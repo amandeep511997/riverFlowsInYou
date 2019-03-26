@@ -630,7 +630,7 @@ The precious gift of this human life becomes fruitful when one chants the True W
 
 > गुर ते महलु परापते जिसु लिखिआ होवै मथि ॥१॥
 
-One who has such destiny written on his forehead enters the Mansion of the Lord's Presence, through the Guru. ||1||
+One who has such destiny written on his forehead enters the Mansion of the Lord's Presence, through the Guru.
 
 > ਮੇਰੇ ਮਨ ਏਕਸ ਸਿਉ ਚਿਤੁ ਲਾਇ ॥
 
@@ -642,7 +642,7 @@ O my mind, focus your consciousness on the One.
 
 > एकस बिनु सभ धंधु है सभ मिथिआ मोहु माइ ॥१॥ रहाउ ॥
 
-Without the One, all entanglements are worthless; emotional attachment to Maya is totally false. ||1||Pause||
+Without the One, all entanglements are worthless; emotional attachment to Maya is totally false.
 
 > ਲਖ ਖੁਸੀਆ ਪਾਤਿਸਾਹੀਆ ਜੇ ਸਤਿਗੁਰੁ ਨਦਰਿ ਕਰੇਇ ॥
 
@@ -660,7 +660,7 @@ If He bestows the Name of Hri, for even a moment, my mind and body are cooled an
 
 > जिस कउ पूरबि लिखिआ तिनि सतिगुर चरन गहे ॥२॥
 
-Those who have such pre-ordained destiny hold tight to the Feet of the True Guru. ||2||
+Those who have such pre-ordained destiny hold tight to the Feet of the True Guru.
 
 > ਸਫਲ ਮੂਰਤੁ ਸਫਲਾ ਘੜੀ ਜਿਤੁ ਸਚੇ ਨਾਲਿ ਪਿਆਰੁ ॥
 
@@ -678,7 +678,7 @@ Suffering and sorrow do not touch those who have the Support of the Name of Hri.
 
 > बाह पकड़ि गुरि काढिआ सोई उतरिआ पारि ॥३॥
 
-Grasping him by the arm, the Guru lifts them up and out, and carries them across to the other side. ||3||
+Grasping him by the arm, the Guru lifts them up and out, and carries them across to the other side.
 
 > ਥਾਨੁ ਸੁਹਾਵਾ ਪਵਿਤੁ ਹੈ ਜਿਥੈ ਸੰਤ ਸਭਾ ॥
 
@@ -696,7 +696,7 @@ He alone finds shelter, who has met the Perfect Guru.
 
 > नानक बधा घरु तहां जिथै मिरतु न जनमु जरा ॥४॥६॥७६॥
 
-Nanak builds his house upon that site where there is no death, no birth, and no old age. ||4||6||76||
+Nanak builds his house upon that site where there is no death, no birth, and no old age.
 
 *Raag Siree (ਸਿਰੀ ਰਾਗੁ) – The basis of this Raag is steeped in the traditions of mainstream Indian Classical music. Siri Raag is serious and thought provoking in its nature and creates an atmosphere where the listener is led to heed the advice given therein. The listener (the mind) is made aware of the truth of the message and with this ‘education’ is given the strength to face the future with both humility and the ‘gained’ knowledge.[source](https://en.wikipedia.org/wiki/Ragas_in_the_Guru_Granth_Sahib)*
 
