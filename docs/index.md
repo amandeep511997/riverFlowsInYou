@@ -612,3 +612,98 @@ Bless me with such understanding, O Merciful Lord God, that I might remember You
 *[translation source](http://srigurugranth.org/0677.html)*
 
 ---
+### Siree Raag, Fifth Mehl
+
+> ਸਭੇ ਥੋਕ ਪਰਾਪਤੇ ਜੇ ਆਵੈ ਇਕੁ ਹਥਿ ॥
+
+> सभे थोक परापते जे आवै इकु हथि ॥
+
+All things are received if the One is obtained.
+
+> ਜਨਮੁ ਪਦਾਰਥੁ ਸਫਲੁ ਹੈ ਜੇ ਸਚਾ ਸਬਦੁ ਕਥਿ ॥
+
+> जनमु पदारथु सफलु है जे सचा सबदु कथि ॥
+
+The precious gift of this human life becomes fruitful when one chants the True Word.
+
+>  ਗੁਰ ਤੇ ਮਹਲੁ ਪਰਾਪਤੇ ਜਿਸੁ ਲਿਖਿਆ ਹੋਵੈ ਮਥਿ ॥੧॥
+
+> गुर ते महलु परापते जिसु लिखिआ होवै मथि ॥१॥
+
+One who has such destiny written on his forehead enters the Mansion of the Lord's Presence, through the Guru. ||1||
+
+> ਮੇਰੇ ਮਨ ਏਕਸ ਸਿਉ ਚਿਤੁ ਲਾਇ ॥
+
+> मेरे मन एकस सिउ चितु लाइ ॥
+
+O my mind, focus your consciousness on the One.
+
+> ਏਕਸ ਬਿਨੁ ਸਭ ਧੰਧੁ ਹੈ ਸਭ ਮਿਥਿਆ ਮੋਹੁ ਮਾਇ ॥੧॥ ਰਹਾਉ ॥
+
+> एकस बिनु सभ धंधु है सभ मिथिआ मोहु माइ ॥१॥ रहाउ ॥
+
+Without the One, all entanglements are worthless; emotional attachment to Maya is totally false. ||1||Pause||
+
+> ਲਖ ਖੁਸੀਆ ਪਾਤਿਸਾਹੀਆ ਜੇ ਸਤਿਗੁਰੁ ਨਦਰਿ ਕਰੇਇ ॥
+
+> लख खुसीआ पातिसाहीआ जे सतिगुरु नदरि करेइ ॥
+
+Hundreds of thousands of princely pleasures are enjoyed, if the True Guru bestows His Glance of Grace.
+
+> ਨਿਮਖ ਏਕ ਹਰਿ ਨਾਮੁ ਦੇਇ ਮੇਰਾ ਮਨੁ ਤਨੁ ਸੀਤਲੁ ਹੋਇ ॥
+
+> निमख एक हरि नामु देइ मेरा मनु तनु सीतलु होइ ॥
+
+If He bestows the Name of Hri, for even a moment, my mind and body are cooled and soothed.
+
+> ਜਿਸ ਕਉ ਪੂਰਬਿ ਲਿਖਿਆ ਤਿਨਿ ਸਤਿਗੁਰ ਚਰਨ ਗਹੇ ॥੨॥
+
+> जिस कउ पूरबि लिखिआ तिनि सतिगुर चरन गहे ॥२॥
+
+Those who have such pre-ordained destiny hold tight to the Feet of the True Guru. ||2||
+
+> ਸਫਲ ਮੂਰਤੁ ਸਫਲਾ ਘੜੀ ਜਿਤੁ ਸਚੇ ਨਾਲਿ ਪਿਆਰੁ ॥
+
+> सफल मूरतु सफला घड़ी जितु सचे नालि पिआरु ॥
+
+Fruitful is that moment, and fruitful is that time, when one is in love with the True Lord.
+
+> ਦੂਖੁ ਸੰਤਾਪੁ ਨ ਲਗਈ ਜਿਸੁ ਹਰਿ ਕਾ ਨਾਮੁ ਅਧਾਰੁ ॥
+
+> दूखु संतापु न लगई जिसु हरि का नामु अधारु ॥
+
+Suffering and sorrow do not touch those who have the Support of the Name of Hri.
+
+> ਬਾਹ ਪਕੜਿ ਗੁਰਿ ਕਾਢਿਆ ਸੋਈ ਉਤਰਿਆ ਪਾਰਿ ॥੩॥
+
+> बाह पकड़ि गुरि काढिआ सोई उतरिआ पारि ॥३॥
+
+Grasping him by the arm, the Guru lifts them up and out, and carries them across to the other side. ||3||
+
+> ਥਾਨੁ ਸੁਹਾਵਾ ਪਵਿਤੁ ਹੈ ਜਿਥੈ ਸੰਤ ਸਭਾ ॥
+
+> थानु सुहावा पवितु है जिथै संत सभा ॥
+
+Embellished and immaculate is that place where the Saints gather together.
+
+> ਢੋਈ ਤਿਸ ਹੀ ਨੋ ਮਿਲੈ ਜਿਨਿ ਪੂਰਾ ਗੁਰੂ ਲਭਾ ॥
+
+> ढोई तिस ही नो मिलै जिनि पूरा गुरू लभा ॥
+
+He alone finds shelter, who has met the Perfect Guru.
+
+> ਨਾਨਕ ਬਧਾ ਘਰੁ ਤਹਾਂ ਜਿਥੈ ਮਿਰਤੁ ਨ ਜਨਮੁ ਜਰਾ ॥੪॥੬॥੭੬॥
+
+> नानक बधा घरु तहां जिथै मिरतु न जनमु जरा ॥४॥६॥७६॥
+
+Nanak builds his house upon that site where there is no death, no birth, and no old age. ||4||6||76||
+
+*Raag Siree (ਸਿਰੀ ਰਾਗੁ) – The basis of this Raag is steeped in the traditions of mainstream Indian Classical music. Siri Raag is serious and thought provoking in its nature and creates an atmosphere where the listener is led to heed the advice given therein. The listener (the mind) is made aware of the truth of the message and with this ‘education’ is given the strength to face the future with both humility and the ‘gained’ knowledge.[source](https://en.wikipedia.org/wiki/Ragas_in_the_Guru_Granth_Sahib)*
+
+<iframe width="530" height="295" src="https://www.youtube.com/embed/QWrDde7oUuU" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+*Listen to this beautiful hymn sung by **Snatam Kaur***
+
+*[translation source](https://gurbanee.blogspot.com/2016/12/lakh-khushiyan-patshayian.html)*
+
+---
